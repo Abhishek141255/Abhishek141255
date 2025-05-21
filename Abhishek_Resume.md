@@ -19,8 +19,8 @@ Motivated BCA student specializing in Artificial Intelligence and Data Science w
 *Poornima University, Jaipur*  
 - 1st Semester CGPA: 7.57  
 - 2nd Semester CGPA: 7.49  
-- Current: 2nd Year, 4th Semester  
-*2022 – Present*
+- 3rd Semester CGPA: 7.27
+- 4th Semester SGPA: 7.46 
 
 **Class 12 – PCM (CBSE)**  
 *Kishori International School*  
